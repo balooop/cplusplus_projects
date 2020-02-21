@@ -1,0 +1,3 @@
+You open the extras menu, its just a bunch of Lebron highlight videos made by 12 year olds. You begin watching, but the droning of loud dubstep backing tracks begins to make your head hurt. Why do people put bad music in highlight videos. No one knows. Seconds before you can change the video, your head literally implodes. You cannot watch Space Jam 2. You can never watch Space Jam 2, because you are dead. What a sad way to go. Now people will think you actually liked Lebron James. Shame on you.
+
+THE END.
